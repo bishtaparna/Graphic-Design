@@ -15,3 +15,7 @@ Consist of a bird, a ring of fire, and a prey as a metaphor for how to be effici
 
 
 ![_Business Card (1)](https://user-images.githubusercontent.com/100293680/213082465-bde02567-0ca1-46bc-8c9f-3646c136724d.png)
+
+
+## Magazines
+![MAGAZINE](https://user-images.githubusercontent.com/100293680/215346830-91d5f867-842b-4655-8913-d1bba880f0c4.jpg)
